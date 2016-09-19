@@ -1,0 +1,6 @@
+- Something to write on
+- Books
+- Friends that push me to be better
+- Nice shoes
+- The hope of life going on another day
+- Math
