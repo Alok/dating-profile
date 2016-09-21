@@ -1,12 +1,9 @@
-Doing something for the last time gives it a romantic air that makes it
-sweeter than every other time. But everything you do has a last time. So
-why not act as if every time is the last?
+Last month, I was attacked by a drunk guy and ended up in the hospital with
+brain bleeding.
 
-My date just smiled at me.
+All I could think about was the Stoic philosophy I had been reading
+about that morning, and how lucky I was to get a chance to practice it.
+The feeling of having my readings indicated was apparently enough to
+outweigh the feeling that I might die.
 
-That night, I was attacked by a drunk guy and ended up in the hospital
-for brain bleeding.
 
-All I could think about was how lucky I was to have my belief tested,
-and the sweet feeling of vindication, which apparently outweighed the
-feeling that I might die.
