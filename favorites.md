@@ -1,6 +1,6 @@
 <b>Books</b>
 
-"Most of what he objected to the world at large was not the result of people reading the wrong books, but rather of not reading any at all."
+<i>"Most of what he objected to the world at large was not the result of people reading the wrong books, but rather of not reading any at all."</i>
 
 <a href="https://alok.github.io/" rel="nofollow" target="_blank">Check out my Goodreads account.</a>
 
